@@ -19,4 +19,4 @@
 
 这些平台不仅提供免费的日本AV资源，还保证了流畅的播放体验和高清画质，是你在线观看日本AV影片的理想选择。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/met20250707/met9 ）</span>
